@@ -1,1 +1,0 @@
-# Portfolio-RIZ-ONE
